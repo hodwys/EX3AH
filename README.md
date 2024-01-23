@@ -1,6 +1,6 @@
 # EX3AH
 Link to itch:
-https://m-h-a.itch.io/ex3a
+[https://m-h-a.itch.io/ex3a]
 
 
 
